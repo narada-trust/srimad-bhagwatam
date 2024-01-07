@@ -1,3 +1,3 @@
 # Śrīmad Bhāgavatam
 
-The complete text of srimad bhagwatam in easy to process format.
+The complete text of Śrīmad Bhāgavatam in easy to process format.
